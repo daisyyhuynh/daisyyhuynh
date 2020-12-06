@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-I am a third year Bachelor of Businesse Adminstration student, concentrating in Accounting.
+I am a third year Bachelor of Business Adminstration student, concentrating in Accounting.
